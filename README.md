@@ -35,9 +35,14 @@ In conclusion, regular building maintenance is essential for ensuring the longev
 
 Contact Information:
 Victor R
+
 Aqua Group
+
 445 Midwest Rd, Unit 2A
 Scarborough, ON M1P 3A9
+
 +1 (647) 606‑4833
+
 info@aqua-group.ca
+
 https://aqua-group.ca

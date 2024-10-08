@@ -32,3 +32,12 @@ Tip: Hire a certified electrician to inspect and upgrade the electrical system w
 
 Conclusion 
 In conclusion, regular building maintenance is essential for ensuring the longevity, safety, and value of your property. By staying on top of inspections and repairs, you can prevent small issues from becoming costly problems in the future. Aqua Group offers professional building maintenance services in Toronto, tailored to meet the specific needs of your property. Contact us today to schedule an inspection and protect your investment.
+
+Contact Information:
+Victor R
+Aqua Group
+445 Midwest Rd, Unit 2A
+Scarborough, ON M1P 3A9
++1 (647) 606‑4833
+info@aqua-group.ca
+https://aqua-group.ca
